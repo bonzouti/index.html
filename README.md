@@ -10,4 +10,4 @@ Aleksandra Tsyrlina
 
 
 
-On a galéré comme des malades mais enfin nous sommes pour aller picoler demain soir.
+On a galéré comme des malades mais enfin nous sommes prêt pour aller picoler demain soir.
